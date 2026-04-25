@@ -4,7 +4,7 @@ Master of Science in Business Analytics candidate at the University of Arizona, 
 
 Seeking **Data Analyst**, **Business Analyst**, or **Business Intelligence Analyst** roles where data, AI, and storytelling drive measurable business outcomes.
 
-📍 Tucson, AZ
+📍 Chandler, AZ
 ✉️ rishabhjunior11@gmail.com
 🔗 [LinkedIn](https://linkedin.com/in/rishabh1998)
 
